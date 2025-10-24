@@ -1,1 +1,1 @@
-# api-xsmb [Xổ Số Miền Bắc Club](https://xosomienbac.club)
+# api-xsmb [XSMB](https://dudoanketqua247.com/)
